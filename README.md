@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Dylan Gaeta
-- 📫 How to reach me: dgaeta@jhu.edu
+- 📫 How to reach me: dgaeta@jhu.edu / dylan.gaeta@colorado.edu
